@@ -62,3 +62,6 @@ Auswertungen Persönlichkeitstest
 **Gewissenhaft:** formal/ernst, wenig: wirkt manchmal, emotionslos/ realistische, Darstellung der Fakten, monoton; oft leise
 
 ### Gemeinsamkeiten
+
+
+Tipp: Bei Vorträgen an eine posivie situation denken w ich gerne gemacht habe (zb designen einer Präsi)
