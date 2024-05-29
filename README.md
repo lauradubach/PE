@@ -61,7 +61,4 @@ Auswertungen Persönlichkeitstest
 **Stetig:** seriös und freundlich, langsam bis moderat; hoffend, dass jemand zuhört, balanciert, moderat; manchmal, zögerlicher Sprechbeginn 
 **Gewissenhaft:** formal/ernst, wenig: wirkt manchmal, emotionslos/ realistische, Darstellung der Fakten, monoton; oft leise
 
-### Gemeinsamkeiten
-
-
 Tipp: Bei Vorträgen an eine posivie situation denken w ich gerne gemacht habe (zb designen einer Präsi)
