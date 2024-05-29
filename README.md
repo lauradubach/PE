@@ -31,3 +31,16 @@ Auswertungen Persönlichkeitstest
 - Macht sein Ding
 - Mag den Wettstreit
 - Stellt eigene Regeln auf
+
+
+## Ablauf Persönlichkeiten erkennen
+
+Blick
+- Augenkontakt
+Mimik
+- Reaktion auf Fragen oder Aussagen
+Sprache
+- Ton
+- Geschwindigkeit
+- Emotionen
+Gemeinsamkeiten
