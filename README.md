@@ -62,3 +62,12 @@ Auswertungen Persönlichkeitstest
 **Gewissenhaft:** formal/ernst, wenig: wirkt manchmal, emotionslos/ realistische, Darstellung der Fakten, monoton; oft leise
 
 Tipp: Bei Vorträgen an eine posivie situation denken die ich gerne gemacht habe (zb designen einer Präsi)
+
+
+# Was habe ich aus dem Bingo auftrag gelernt
+
+1. Die stärken und schwächen der Teampartner ansehen und so einteilen
+2. Die Rollen verteilen um die Struktur zu schaffen
+3. Als Team zusammenarbeiten und einander Unterstützen
+
+
