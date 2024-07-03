@@ -65,9 +65,21 @@ Tipp: Bei Vorträgen an eine posivie situation denken die ich gerne gemacht habe
 
 
 # Was habe ich aus dem Bingo auftrag gelernt
-
 1. Die stärken und schwächen der Teampartner ansehen und so einteilen
 2. Die Rollen verteilen um die Struktur zu schaffen
 3. Als Team zusammenarbeiten und einander Unterstützen
 
+# Albtraum von einem Chef
+1. akzeptiert andere meinungen nicht
+2. lässt einem nicht ausreden
+3. schaut auf einem herab als wäre er was besseres
+4. diskutiert über unnötige dinge
+5. zeigt keine dankbarkeit
+6. verbietet die ferien
+7. kommt im letzten moment mit aufträgen, die JETZT noch gemacht werden müssen
 
+# Traum von einem Chef
+1. geht auf die Bedürfnisse ein
+2. man kann miteinander lachen und witze machen
+3. man ist auf kollegialer ebene (fühlt sich gleichgestellt)
+4. bekommt anerkennung und respekt
